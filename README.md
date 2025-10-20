@@ -1,2 +1,2 @@
 # My_project
-wellcomw to my project. i hope you like it
+wellcome to my project. i hope you like it
